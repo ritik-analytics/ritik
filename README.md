@@ -1,4 +1,4 @@
-Hi 👋 I'm Rahul
+Hi 👋 I'm Ritik
 
 Aspiring Data Analyst
 
